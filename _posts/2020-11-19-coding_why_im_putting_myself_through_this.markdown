@@ -1,7 +1,7 @@
 ---
 layout: post
 title:      "Coding: Why I'm Putting Myself Through This"
-date:       2020-11-19 23:18:48 +0000
+date:       2020-11-19 18:18:49 -0500
 permalink:  coding_why_im_putting_myself_through_this
 ---
 
