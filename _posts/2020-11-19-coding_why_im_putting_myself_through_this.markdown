@@ -23,7 +23,6 @@ Anyways, it was the week I ended my job at Amazon that I found out I was pregnan
 
 Not exactly glamorous, but the pay was actually pretty dang good and so were the benefits.  But geez... I was not fufilled in the slightest.  I answered phone calls, scheduled meetings and ordered lunches for the firm, and that about summed up my day- every day, day in and day out.  I started feeling embarassed when people asked me what I did for work and was kicking myself for going to school for four years only to have become a receptionist.  I was very, very discouraged with my "career" path.     
 
-![](hhttps://imgix.bustle.com/lovelace/uploads/141/9fda9130-7fcf-0132-1d8a-0a2c89e5f2f5.gifttp://)
 
 Fast forward 9 months and I had my beautiful baby boy, received excellent maternity leave, and was promoted to an administrative assistant while away.  When I came back to work, I thought for sure I would have more responsibilities and find more fufillment with my job.  The sad truth is I actually had more work as a receptionist.  I found my days dragging and I was constantly asking for more responsibilities or projects to work on.
 
